@@ -1,1 +1,6 @@
 # meo
+Cuộc sống hôn nhân của cặp đôi vàng Bi Rain - Kim Tae Hee là điều được công chúng vô cùng quan tâm. Sau khi tiết lộ tầng 1 căn biệt thự trăm tỷ rộng rãi vào tuần trước, lần này, Bi Rain đã tiếp tục hé lộ bếp và không gian của 2 cô con gái thông qua chương trình The Manager phát sóng vào tối 7/3.
+
+Căn bếp trong biệt thự trăm tỷ của Bi Rain đặc biệt gây ấn tượng mạnh với phong cách thiết kế tối giản nhưng sang trọng, có tông màu đen xám chủ đạo, nhiều thiết bị hiện đại và đắt đỏ. Nam ca sĩ tự hào khoe: "Tôi đã tự tay thiết kế nội thất cho toàn bộ tổ ấm". Bên cạnh đó, anh cũng hé lộ 1 phần không gian của 2 cô con gái. Ông bố 2 con đã lắp đặt lan can ở góc cầu thang để đảm bảo an toàn tuyệt đối cho các con, đồ chơi của 2 cô con gái cũng được xếp gọn gàng trong cũi.
+
+Cũng trong chương trình này, Bi Rain đã trổ tài nấu món cơm rang và cua cho bà xã xinh đẹp Kim Tae Hee cùng các con. Ông bố 2 con là người rất đảm đang, thành thạo việc bếp núc và đã nhanh chóng hoàn thành món ăn. Sau khi nấu xong, anh gọi cả gia đình xuống ăn nhưng không có lời hồi đáp. Nam ca sĩ đình đám giải thích do vợ và các con rất ngại ngùng và chưa muốn xuất hiện trên truyền hình, nên anh sẽ tắt máy quay tại đây.
